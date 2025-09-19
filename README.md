@@ -1,2 +1,2 @@
 # ORANGE
-My name is Manoj Gharti Magar
+Manoj Gharti Magar
